@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning hoi4 :)))
 - 💞️ I’m looking to collaborate on hoi4 :)))
 - 📫 How to reach me #p1ng9713
-- 😄 Pronouns: ...
+- 😄 Pronouns: Houd/ini
 - ⚡ Fun fact: I like deep battle its quiet good
 
 <!---
